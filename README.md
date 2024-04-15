@@ -14,3 +14,4 @@ https://github.com/denizabdulkadir/CaseStudy/assets/114028797/2753e936-800a-47b8
 
 https://github.com/denizabdulkadir/CaseStudy/assets/114028797/d28c8b7b-f50f-4b55-bed8-741c69d5b7cb
 
+<img width="678" alt="Resim" src="https://github.com/denizabdulkadir/CaseStudy/assets/114028797/88ee9244-effa-432e-92c3-29222fb57d06">
